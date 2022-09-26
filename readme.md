@@ -1,0 +1,2 @@
+-   2022
+    -   截圖：https://sorahisa-rank.github.io/sh-ylsh/2022/ranking.png
